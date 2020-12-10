@@ -17,3 +17,4 @@ Having the ability and correct mindset to maintain and learn new things.
 ## > Quotes
 > Can you see me?
 
+:neckbeard:
